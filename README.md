@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Mochamad Dendra Dwi Pratama Putra, [Linkedin](https://www.linkedin.com/in/mochamad-dendra-dwi-pratama-putra-351b102a7/).
